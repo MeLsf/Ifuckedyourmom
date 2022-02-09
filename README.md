@@ -1,2 +1,1 @@
-# Ifuckedyoumom
-Ifuckedyoumom
+# I fucked your mom
